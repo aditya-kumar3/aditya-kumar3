@@ -1,7 +1,7 @@
-# 💫 Hi 👋, I'm Aditya Kumar
-**A passionate Software Developer|| web Developer **
+💫 Hi 👋, I'm Aditya Kumar
+A passionate Software Developer || Web Developer 
 
-Email Me 👉 ✉️ **Adityawww33@gmail.com For Collaboration/Project or Anything Else. 😊😊
+Email Me 👉 ✉️ { Adityawww33@gmail.com } For Collaboration/Project or Anything Else. 😊😊
 
 -🔭  **I’m currently pursuing Master's in Computer Application at Amity University.
 -🌱  **I’m interested in learning new things and gain experience to enhance my skills.
