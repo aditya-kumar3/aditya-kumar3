@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Aditya Kumar
-**A passionate Software Developer|| web Devleoper **
+**A passionate Software Developer|| web Developer **
 
 Email Me 👉 ✉️ **Adityawww33@gmail.com For Collaboration/Project or Anything Else. 😊😊
 
